@@ -1,0 +1,2 @@
+# YakupKrkmz
+yakup
